@@ -11,3 +11,4 @@
 * Apple AirPods Pro 2 - https://www.dns-shop.ru/product/8264b1723015ed20/nausniki-tws-apple-airpods-pro-2-belyj/
 * Pilot Capless Decimo - https://getpen.ru/pilot-capless-decimo-black/i/2742
 * God of war: Ragnarok - https://www.avito.ru/moskva/igry_pristavki_i_programmy/god_of_war_ragnarok_ps4_diski_god_of_war_2018_2793393269
+* Nintendo Switch OLED - https://www.avito.ru/moskva/igry_pristavki_i_programmy/nintendo_switch_oled_neonwhite_2802655878
