@@ -1,4 +1,4 @@
-### Wish list на ДР ** 
+### Wish list на ДР
 
 * Kingrinder K4/K6 - https://aliexpress.ru/item/1005003405581947.html?sku_id=12000025641066458&spm=a2g2w.productlist.search_results.2.18394aa6e5oFcq
 * Умный проектор Xiaomi Mi 2 - https://aliexpress.ru/item/1005003605003209.html?sku_id=12000030163437786&spm=a2g2w.productlist.search_results.0.347b4aa6yHolfU
